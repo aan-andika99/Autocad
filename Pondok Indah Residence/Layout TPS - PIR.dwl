@@ -1,3 +1,0 @@
-OKTA
-DESKTOP-EN3QKTR 
-Senin, 18 Desember 2023  12.02.47
