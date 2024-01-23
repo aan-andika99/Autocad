@@ -1,3 +1,0 @@
-OKTA
-DESKTOP-EN3QKTR 
-Jumat, 19 Januari 2024  17.03.47
